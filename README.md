@@ -1,4 +1,4 @@
-Koodaan Rahareititintä
+Koodaan 
 
 Minut saa kinni sähköpostista:
 
